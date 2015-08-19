@@ -1,10 +1,10 @@
 # Brandon Moller Bio
 
-- works in Lehi, UT
-- lives in Eagle Mountain
-- uses Linux
+- works in Lehi, UT under the pink waterfall of doom
+- lives in Eagle Cave
+- uses Linux but secretly love using Windows ME.
 
-#winning!
+#winning no longer!
 
 Minions ipsum belloo! Uuuhhh jeje aaaaaah ti aamoo! Me want bananaaa! Uuuhhh po kass. Tulaliloo tatata bala tu chasy hahaha baboiii daa. Poopayee underweaaar bananaaaa butt po kass belloo! Me want bananaaa! underweaaar ti aamoo! Me want bananaaa! Para tú hana dul sae underweaaar pepete ti aamoo! Jiji. Para tú uuuhhh tulaliloo po kass wiiiii belloo! Me want bananaaa! Po kass jeje underweaaar wiiiii bappleees belloo! Bappleees daa bee do bee do bee do para tú.
 
