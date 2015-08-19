@@ -4,3 +4,4 @@
 - Lives in Midvale
 - Learning more bout GIT
 **Going through the process of getting my first home :)**
+- Good luck!
