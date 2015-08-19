@@ -1,4 +1,4 @@
-### Roy Hayward's Bio
+### Roy William Hayward's Bio
 
 - Roy Hayward roy@theintegrationengineer.com
 - Visit roy and learn more.
