@@ -1,6 +1,6 @@
 ### Gitjeffajohns Bio
 
 - Killed him a bear, when he was only 3
-- ~~once got busy in a Burger King bathroom~~
+- Pumped up kicks.
 
 ***wonders what this markdown does**
