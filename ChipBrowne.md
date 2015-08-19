@@ -7,3 +7,4 @@
 - loves to hike
 
 ***Favorite food is ice cream!**
+Now I am in training
