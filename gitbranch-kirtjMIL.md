@@ -1,10 +1,10 @@
 ### File for Github Training
 
-- Hello Dave
+- From Bullfdate UT
 
-- Will I Dream? 
+- Loves to quote movies
 
-- Im afraid I can't do that, Dave.
+- Wants to build the ultimate AI
 
 **Favorite food is Indian** 
 
