@@ -2,7 +2,7 @@
 
 - Works in Lehi
 - Lives in Daybreak
-- Fosters Birds
+- Fosters Birds <-- that is cool!
 - Loves card and board games
 - Can't believe I'm getting paid for this
 
