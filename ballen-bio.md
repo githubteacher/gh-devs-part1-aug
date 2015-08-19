@@ -3,9 +3,8 @@ My Big Biographical Commitments
 
 Another line of text
 - Works for Younique
-- Lives in Tattonie
-- USS Enterprise Sicience Officer
--Part Time ninja
+- Lives in Tooele
+- USS Independence Sailor
 
 - Eats foods
 - Drinks liquids
