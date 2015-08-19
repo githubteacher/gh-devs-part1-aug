@@ -1,6 +1,10 @@
 # gh-devs-part1-aug
 Class Repository for GH for Developers Part 1 - August 2015
 
+## To show branch name in command prompt
+
+Add the following to your .bashrc file:
+
 ```bash
 
 # add branch to bash prompt
