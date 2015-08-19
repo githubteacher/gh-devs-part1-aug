@@ -6,6 +6,6 @@
 - or go to https://about.me/royhayward to see another bio.
 
 - i used to be He-man
-- i like frogs - they taste good
+- i like dogs - they taste good
 - i had a pet once - but now i don't
 - expert juggler
