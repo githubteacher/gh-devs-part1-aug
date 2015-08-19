@@ -1,6 +1,6 @@
 ### ChipBrowne Bio
 
-- works in Lehi
+- works in Lehi near Thanksgiving Point
 - lives in Utah
 - loves to ski
 - loves fast cars
