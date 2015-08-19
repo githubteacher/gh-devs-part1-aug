@@ -3,7 +3,7 @@
 - works in Lehi
 - lives in Utah
 - loves to ski
-- loves cars
+- loves fast cars
 - loves to hike
 
 ***Favorite food is ice cream!**
