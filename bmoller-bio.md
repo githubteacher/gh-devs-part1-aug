@@ -1,7 +1,7 @@
 # Brandon Moller Bio
 
-- works in Lehi, UT
-- lives in Eagle Mountain
-- uses Linux
+- works in Lehi, UT under the pink waterfall of doom
+- lives in Eagle Cave
+- uses Linux but secretly love using Windows ME.
 
-#winning!
+#winning no longer!
