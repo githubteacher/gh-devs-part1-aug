@@ -2,9 +2,10 @@ My Big Biographical Commitments
 
 
 Another line of text
-- Works for Unique
-- Lives on Tattone
-- USS Enterprice Science officer
+- Works for Younique
+- Lives in Tattonie
+- USS Enterprise Sicience Officer
+-Part Time ninja
 
 - Eats foods
 - Drinks liquids
