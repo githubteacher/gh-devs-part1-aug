@@ -2,9 +2,9 @@
 
 -works in Lehi
 -lives in Alpine
--like to do fun things
+-like to bike, read, watch movies
 
-**Favorite food is pizza**
+**Favorite food is Cookies**
 
 
 
