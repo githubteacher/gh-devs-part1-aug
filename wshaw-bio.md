@@ -1,1 +1,6 @@
-This is my bio
+### Will Shaw's Bio
+
+- This
+- Is
+- A
+- List
