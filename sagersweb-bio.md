@@ -5,3 +5,8 @@
 * Enjoys a good sandwich
 * Moonlights as a graphic designer
 * Geoffrey, Not Jeff, Jeffry, or Gregory.
+* AKA Geof, Geoff, GeOff
+
+**Your bio could use some work!**
+
+- [x] Awesome
