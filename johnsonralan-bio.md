@@ -7,3 +7,7 @@
 
 **Favorite food is Pho!**
 **Favorite current video game is Destiny!**
+
+I love my job.
+
+I love have a purpose to get up in the morning and a job that challenges my mental capacity. Love it!!
