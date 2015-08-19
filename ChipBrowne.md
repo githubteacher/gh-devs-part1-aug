@@ -8,3 +8,9 @@
 
 ***Favorite food is ice cream!**
 Now I am in training
+
+We are totally partners in this task! :)
+
+What flavor of ice cream is your favorite?
+
+If you could create any flavor of ice cream not currently out there, what would it be?
