@@ -1,8 +1,9 @@
 ##Katy MDC Bio
 
 - Really likes dinosaurs, penguins and rabbits
-- From Boise
+- From Boise, Idaho
 - Cheese is cool. Gouda is definitely the coolest.
-- I found the first mouse. Saw is more correct.
+- I have a blue MINI and it makes me love driving.
+- I sae the first mouse.
 
 **YAY!**

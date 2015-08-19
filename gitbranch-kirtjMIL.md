@@ -7,6 +7,14 @@
 - Liloo, Dallas Multipass 
 
 - Wants to build the ultimate AI
+ 
+- is a ninja Sort of
+
+- Not really a ninja 
+
+- Not at all
+
+- Doesn't like conflict 
 
 **Favorite food is Indian** 
 
