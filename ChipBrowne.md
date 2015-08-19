@@ -10,6 +10,8 @@
 Now I am in training
 and I am next to Alan
 
+Never get off the boat!
+
 We are totally partners in this task! :)
 
 What flavor of ice cream is your favorite?
