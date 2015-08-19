@@ -8,6 +8,7 @@
 
 ***Favorite food is ice cream!**
 Now I am in training
+and I am next to Alan
 
 We are totally partners in this task! :)
 

@@ -6,4 +6,7 @@
 - From Indiana
 - Stuck in Utah - yea, because of a girl.....
 - ^^ Funniest bio post ever!
+- roy is awsome
+- i have some kids
+- i have a car
 - the well tatooed one in the floor.
