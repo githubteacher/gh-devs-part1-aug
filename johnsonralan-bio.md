@@ -7,6 +7,7 @@
 - loves linux vim
 **Favorite food is Pho!**
 **Favorite current video game is Destiny!**
+- thank you for the recommendation :-)
 
 I love my job.
 

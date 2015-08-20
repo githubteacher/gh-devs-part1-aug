@@ -10,3 +10,4 @@
 - Learning more bout GIT, refreshing my memory on command.
 
 **Going through the process of getting my first home :)**
+- Good luck!
